@@ -7,7 +7,7 @@ Meu nome é Gabrielly!😄
  - Venha para o Cel fazer Curso de Japônes e Inglês e outros tendeu?🤔
  - [Alurinha](https://www.alura.com.br) parçeirinho(a)
 
-###Você pode entrar em contato comigo... mas prefiro que não... to zoando!!😃
+### Você pode entrar em contato comigo... mas prefiro que não... to zoando!!😃
 
 - Não vou colocar o meu email da escola não hehehhe😸
 
